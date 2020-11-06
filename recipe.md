@@ -1,0 +1,20 @@
+MOONG DAL HALWA RECIPE:
+-wash and drain moong dal.
+-roast moong dal without ghee till a darker shade acheived.
+-let moong dal cool down.
+-add a few strands of saffron in 5 tbsp hot milk.
+-when moong dal is cool blend it to a smooth powder.
+-take a kadhai.
+-add 2 tbsp of ghee in kadhai and add the nuts in it and roast it.
+-once roasted ,take out the nuts.
+-pour 3/4 cup of ghee in the same kadhai.
+-add the moong powder we made earlier.
+-mix it well.
+-let it cool down for 5 min.
+-add 1 cup milk and mix well.
+-add the saffron milk we made earlier and mix.
+-add half cup milk and mix.
+-add 1 bowl sugar in it and mix again.
+-the halwa will become a bit runny in consistency.
+-when the halwa starts leaving the kadhai(when it is not sticky) your halwa will be ready.
+-now most importantly ENJOY!
